@@ -41,12 +41,12 @@ Penso che questo progetto sia molto prezioso perché risponde a due esigenze fon
 ![Rossana_Morriello_edited_edited](https://user-images.githubusercontent.com/48010221/66735601-17367d80-ee67-11e9-9139-a54186d50863.jpg)
 
 * Politecnico di Torino - Servizio Programmazione Sviluppo e Qualità
-* [rossana.morriello@upolito.it](mailto:rossana.morriello@polito.it) 
+* [rossana.morriello@polito.it](mailto:rossana.morriello@polito.it) 
 * @rox_more
 * 0000-0002-9990-9243
 * http://staff.polito.it/rossana.morriello/
 
-Sono bibliotecaria al Politecnico di Torino dove mi occupo di supporto alla valutazione della ricerca e del CRIS di ateneo IRIS presso il Servizio Programmazione Sviluppo e Qualità da settembre 2014. In precedenza ho lavorato nei sistemi bibliotecari di ateneo del Politecnico di Torino e dell'Università Ca' Foscari di Venezia, occupandomi prevalentemente di risorse digitali. Sono autrice di un centinaio di pubblicazioni e sono stata docente in numerosi corsi di formazione professionale e seminari universitari. Ho ricoperto diversi incarichi nell'Associazione Italiana Biblioteche.
+Sono laureata in Lingue e letterature straniere e in Archivistica e biblioteconomia e sono bibliotecaria dal 1997. Attualmente lavoro al Politecnico di Torino dove mi occupo di supporto alla valutazione della ricerca e del CRIS di ateneo IRIS presso il Servizio Programmazione Sviluppo e Qualità, da settembre 2014. In precedenza ho lavorato nei sistemi bibliotecari di ateneo del Politecnico di Torino e dell'Università Ca' Foscari di Venezia, occupandomi prevalentemente di risorse digitali. Sono autrice di un centinaio di pubblicazioni e sono stata docente in numerosi corsi di formazione professionale e seminari universitari. Ho ricoperto diversi incarichi nell'Associazione Italiana Biblioteche.
 
 A Venezia sono stata rappresentante per Ca’ Foscari nel consorzio CIPE, un consorzio di università per l’acquisizione di risorse digitali, dove ho potuto sperimentare direttamente le difficoltà nel negoziare con gli editori per garantire agli atenei l’accesso ai materiali digitali e i diritti correlati. 
 
